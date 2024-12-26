@@ -2,7 +2,7 @@
 - 👀 I’m interested in alot of stuff, but making maps, buildings and helping people safeguard their servers
 - 🌱 I’m currently learning electrical engineering
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me discord: neptune17, email: (will set up new one)
+- 📫 How to reach me discord: neptune17, email: neptune1997@gmail.com
 - 😄 Pronouns: she/her/idc 
 - ⚡ Fun fact: im crazy tall
 
